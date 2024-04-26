@@ -1,0 +1,1 @@
+# vezbi_Interfejs_temp
